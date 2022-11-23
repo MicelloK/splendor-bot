@@ -1,3 +1,3 @@
 # splendor-bot
 
-Coś tam zrobiłem, ale kiedy to skończyć
+will come back here someday
